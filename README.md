@@ -1,0 +1,1 @@
+# gintoki2306.gibug.io
